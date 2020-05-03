@@ -1,2 +1,2 @@
 # Jean-Lbd-Jewelry
-Craftmade-Jewelry
+Craftmade Jewelry
